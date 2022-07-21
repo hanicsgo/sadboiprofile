@@ -7,5 +7,8 @@ https://www.facebook.com/24kblossom/
 ## Demo (static image):
 <img src="https://github.com/hanicsgo/sadboiprofile/blob/main/images/anh.png"/>
 
-## Extras:
+## Note:
 Can't trust anyone!!!!
+
+## Fun Fact:
+I just traped by that guy younger than me :) 
