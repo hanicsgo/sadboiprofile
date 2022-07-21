@@ -11,4 +11,4 @@ https://www.facebook.com/24kblossom/
 Can't trust anyone!!!!
 
 ## Fun Fact:
-I just traped by that guy younger than me :) 
+I just traped by that girl younger than me :) 
