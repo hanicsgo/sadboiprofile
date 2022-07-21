@@ -1,2 +1,0 @@
-# sadboiprofile
-sadboi-profile
